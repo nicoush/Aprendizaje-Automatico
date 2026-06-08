@@ -1,1 +1,1 @@
-# Aprendizaje-Autom-tico-2025
+Aprendizaje Automático 2026
